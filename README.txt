@@ -1,1 +1,1 @@
-ciao sono paperino, con la pipa in bocca
+ciao sono pluto, con la pipa in bocca
